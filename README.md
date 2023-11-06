@@ -1,1 +1,17 @@
-# naan-mudhalvan-
+Agni College Of Technology
+# Naan-mudhalvan-Project- How To Create A Brand Promo Using Canva
+#Lavanya NM ID : 014E35411C483B4889844F336ED031F3C
+
+Sona NM ID :4F14642C0916E9E97814202F77EA84C4
+
+Logeshwari NM ID :2DEC751D7AE9A5986EA4499515BDA94A
+
+Chejarla Harika NM ID :A33A239AAF86E81B8334BFB17665C035
+
+S.Lavanya 312820106018
+
+M.Sona 312820106029
+
+V.Logeshwari 312820106019
+
+C.H.Chejarla Harika 312820106007
